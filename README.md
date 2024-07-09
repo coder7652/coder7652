@@ -1,6 +1,4 @@
-- 👋 Hi, I’m @coder7652
-- 👀 I’m interested in datascience and AIML
-- 🌱 I’m currently learning advance python.
+
 - 📫 How to reach me - https://www.linkedin.com/in/shruti-chaugule-0a29492b2/
 - 😄 Pronouns: she/he
 
