@@ -1,6 +1,6 @@
 
 - 📫 How to reach me -https://www.linkedin.com/in/shruti-chaugule/
-- 😄 Pronouns: she/he
+- 😄 Pronouns: she/her
 
 
 <!---
