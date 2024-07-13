@@ -1,5 +1,5 @@
 
-- 📫 How to reach me - https://www.linkedin.com/in/shruti-chaugule-0a29492b2/
+- 📫 How to reach me -https://www.linkedin.com/in/shruti-chaugule/
 - 😄 Pronouns: she/he
 
 
